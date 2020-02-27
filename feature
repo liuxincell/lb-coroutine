@@ -1,1 +1,1 @@
-this is a feature by xin has.
+this is a feature by xin.
